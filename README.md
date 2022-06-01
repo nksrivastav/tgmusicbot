@@ -26,5 +26,5 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![@masoom_banda](https://te.legra.ph/file/8f9d2a593854d0c736201.png)](https://t.me/wifedarloooo)
+[![@masoom_banda]()](https://t.me/wifedarloooo)
 msks
